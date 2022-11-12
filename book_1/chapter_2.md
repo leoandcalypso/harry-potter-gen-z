@@ -29,7 +29,7 @@ Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from h
 
 Once clothed he skirted his way down the hall into the kitchen. The table was smol beneath all Dudley's bday gifts. It looked as though Dudley had gotten the new chromebook he wanted, not to mention the second television and the racing bike. Harry was confusion as to why Dudley wanted a racing bike, as Dudley was a big heckin' chonker and hated gains - unless of course it involved throwing hands. Dudley's fave punching bag was Harry, but he couldn't often catch him. Harry didn't look it, but he was speedy af.
 
-Prolly had something to do with living in a dutty cupboard, but Harry had always been smol and scrawny for his age. He looked the farthest from swole because all his fits were second hand clothes of Dudley's, and Dudley was fourish times as thicc as him. Harry has a gangly face, knobbly knees, black hair and bright green eyes (like Harry Styles). He wore circle glasses held together with a lot of Scotch tape bc of all the times he had caught Dudley's hands with his face. The only thing Harry liked about his lewk was a very thin scar on his forehead that was shaped like a bolt of lightning. He had had it as long as he could remember and thought is gave main charater energy. Since his life was uninteresting asf the first question he could ever remember asking his Aunt Petunia was how he had gotten it.
+Prolly had something to do with living in a dutty cupboard, but Harry had always been smol and scrawny for his age. He looked the farthest from swole because all his fits were second hand clothes of Dudley's, and Dudley was fourish times as thicc as him. Harry has a gangly face, knobbly knees, black hair and bright green eyes (like Harry Styles). He wore circle glasses held together with a lot of Scotch tape bc of all the times he had caught Dudley's fists with his face. The only thing Harry liked about his lewk was a skinny scar on his forehead that was shaped like a bolt of lightning. He had had it as long as he could remember and thought it gave main charater energy. Since his life was uninteresting asf the first question he could ever remember asking his Aunt Petunia was how he had gotten it.
 
 "When your parents wrecked their whip and unalived." she had said. "And don't be askin questions."
 
@@ -43,15 +43,15 @@ Bout once a week, Uncle Vernon peeped over the top of his tablet and shouted tha
 
 Harry was frying eggs by the time Dudley vented in the kitchen with his birther. Dudley was a mini-me of Uncle Vernon. He had a chonky pink face, hardly any neck, smol watery blue eyes, and lotsa blonde hair that lay flat upon his fugly head. Aunt Petunia often said that Dudley looked like a bb angel - Harry often said that he looked like a rejected plus size cabbage patch doll. 
 
-Harry put the feast of eggs and bacon on the table, which was supa hexagon hard bc there wasn't much room. Dudley, meanwhile, was countin' is presents. His privileged face fell.
+Harry put the feast of eggs and bacon on the table, which was supa hexagon hard bc there wasn't much room. Dudley, meanwhile, was countin his presents. His privileged face fell.
 
 "Thirty-six," he mathed, looking up at his mother and father. "That's two less than last year."
 
 "Bae, you haven't counted Auntie Marge's present, cop a look, it's here under this big one from Mummy and Daddy."
 
-"All right, thirty-seven then.", said Dudley, color changing to bright red. Harry, who could sus out a huge Dudley bitchfit coming on, began chugging down his bacon as fast as possible in case Dudley yeeted the table over. 
+"All right, thirty-seven then.", said Dudley, color changing to bright red. Harry, who could sus out a huge Dudley bitchfit coming on, began wolfing down his bacon as fast as possible in case Dudley yeeted the table over. 
 
-Aunt Petunia saw the red flags, too, because she said quickly, "And we'll cop you another two presents while we're vibin' today. How's that, qt? Two more gifts. Is that aiight?"
+Aunt Petunia saw the red flags too, because she said quickly, "And we'll cop you another two presents while we're vibin' today. How's that, qt? Two more gifts. Is that aiight?"
 
 Dudley strained as the wheels turned in his head, ever so slowly. "So I'll have thirty... thirty..."
 
@@ -67,7 +67,7 @@ At that moment the telephone rang and Aunt Petunia went to answer it while Harry
 
 "Shitty news, Vernon," she said. "Mrs. Figg's clumsy ass broken her leg. She can't take him." She jerked her head in Harry's direction. 
 
-Dudley's mouth fell open in horror, but Harry's heart did a ziggy. Every year on Dudley's bday, his parentals took him and a homeboy out for the day, to tots awesome adventure parks, bougie restaurants, or the dope movies. Every year, Harry was left behind with Mrs. F, a crazy old bat who lived two streets away. Harry hated it there. The whole house had a buttbreath smell of cabbage and Ms. F made him look at pics of all the kitties she'd ever hosted.
+Dudley's mouth fell open in horror, but Harry's heart did a ziggy. Every year on Dudley's bday, his parentals took him and a homeboy out for the day, to totes awesome adventure parks, bougie restaurants, or dope movies. Every year, Harry was left behind with Mrs. F, a crazy old bat who lived two streets away. Harry hated it there. The whole house had a buttbreath smell of cabbage and Ms. F made him look at pics of all the kitties she'd ever hosted.
 
 "Now what?" said Aunt Petunia, looking furiously at Harry as though he had schemed the whole thing. Harry knew he ought to give a shit that Mrs. F's leg was bruk, but it wasn't easy when he reminded himself that it would be a whole ass year before he had to look at Tibbles, Snowy, Mr. Paws, and Tufty again. 
 
